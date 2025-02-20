@@ -7,7 +7,7 @@ Hello! ;) You just showed me something, that I recognized as a sign of a secret 
 Unfortunatelly, a large group in __COUNTRY__ is aggressively stalking me since __DATE__.
 Please ignore and put this card to trash, if you don't understand what I'm talking about.
 
-But if you understand that you signalled me: 
+But if you intentionally signalled me: 
 
 [face family photo]
 
