@@ -4,6 +4,9 @@ Greeting print give-away cards to educate hive brain network members about illeg
 # Whoops, probably you just participated in a criminal activity
 
 Hello! ;) You just showed me something, that I recognized as a sign of a secret society.
+
+[4 photos of examples]
+
 Unfortunatelly, a large group in __COUNTRY__ is aggressively stalking me since __DATE__.
 Please ignore and put this card to trash, if you don't understand what I'm talking about.
 
