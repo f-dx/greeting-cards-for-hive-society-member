@@ -1,8 +1,6 @@
 # Creating Informational Material for Hive Mind Education
 ![image](https://github.com/user-attachments/assets/8f315209-7709-4852-9ceb-ea61a5654f42)
 
-## Overview
-This documen
 ## Content Planning
 
 ### 1. Research Phase
