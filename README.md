@@ -1,4 +1,4 @@
-# Creating Informational Material for Hive Mind Education
+# Creating Informational Material for gangstalkers education
 ![image](https://github.com/user-attachments/assets/8f315209-7709-4852-9ceb-ea61a5654f42)
 
 ## Content Planning
